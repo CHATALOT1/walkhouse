@@ -21,6 +21,6 @@ Natures: **Wilderness**, **Road**, **Glen**
 
 It is said that this forest moved long ago to where it is now, and that around the path used to just be plains. There are some that believe it was more then plains, and that once this was a thriving metropolis... Until the woods walked here...
 
-### The forest spirits and their mockery
+### The Forest Spirits and Their Mockery
 
 It is said that all the trees here have a spirit, but that they are more apart then the spirits of other forests and in fact often have debates about how to handle their political issues. These spirits used to, for the most part, hate outsiders and employed various tactics to get them to leave including mocking them until they got upset and left. Some even going so far as to scare them away. Nowadays their society is much more accepting of outsiders, and instead largely opt not to interact with them, as they still don't want their affairs meddled with. There are some young trees however, who still like to talk to strangers...
