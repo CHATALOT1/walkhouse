@@ -1,6 +1,8 @@
-# Session 2 Place: The Green Way
+# The Green Way
 
 > "Oh, have you ever seen a forest so alive and yet so peaceful? A road of joy this one." - Little Red the young salamander
+
+First introduced: [Session 2](../Sessions/Session-2/general.md)
 
 Natures: **Wilderness**, **Road**, **Glen**
 
