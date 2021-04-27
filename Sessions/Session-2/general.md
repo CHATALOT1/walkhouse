@@ -19,7 +19,7 @@
     - A stream that intersects with the road (a bridge is built to cross it) for when the players get thirsty
     - Small bugs seemingly arguing over territory
     - Someone who talks about one of the folklore
-    - One of the trees suddenly talks to them as mentioned in [A piece of Green Way folklore](../../Places/green-way.md#the-forest-spirits-and-their-mockery)
+    - One of the trees suddenly talks to them as mentioned in [a piece of Green Way folklore](../../Places/green-way.md#the-forest-spirits-and-their-mockery)
 
 11. They realise they have come across one of the numbered stones they saw hours and hours ago as it gets dark (They saw it before step 10)
 12. (Optional) Allow for discussion
