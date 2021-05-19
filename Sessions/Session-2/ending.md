@@ -11,7 +11,7 @@ This session took upwards of an hour and a half
 - Gained items from Randy Jane the travelling distributor squirrel
   - Sage got Bobby a **many-coloured small scarf**
   - Sage gained **many shiny stones** that Sage does not know the name of
-  - Basilia got an **extremely rust shovel**
+  - Basilia got an **extremely rusty shovel**
   - Rachel got a lot of daisy-like **multicoloured flowers** and distributed them among her bees for food and decoration.
 - The party (especially Basilia) are very interested in the stones along the Green Way, there is no or little mystery to do with them
 
