@@ -17,15 +17,15 @@ This place is hidden comfortably within [the Green Way](green-way.md)
   - There is always a healthy supply of apples along with a few other fruits in the Hall.
 - The dragonflies of the green way buzz everywhere here as well.
 
-## Folklore and secrets
+## Folklore, people and secrets
 
-### Flynn
+### Flynn (they/them)
 
 The mayor, Flynn, is always chirpy and 'proper', loving to organise events and make people happy. However, Flynn is secretly overwhelmed and exhausted by all this hard work but rarely expresses this to anyone (and never in public!). Flynn needs and deserves a break, but won't let themself have one.
 
 Basilia has a package for Flynn, a basket of homemade candies.
 
-### Joseph
+### Joseph (he/him)
 
 Joseph used to make weapons. The fact that he did this boils his blood and he struggles not to dislike himself over it. He acts chirpy, just like the mayor, but has many intrusive thoughts most of the time and fears actuating them, even though he never would. You'd have to get to know him in order for him to express any of this to you.
 
